@@ -35,3 +35,5 @@ After a short reply of Morgonaut (screen incoming), and my next question, it got
 ![](new_comment.png)
 
 # STOP GIVING FAME TO PEOPLE WHO DON'T DESERVE IT
+
+Sincerely, a user who is really annoyed about the bullshit of this idiot
