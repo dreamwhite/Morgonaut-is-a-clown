@@ -30,8 +30,8 @@ Cheers
 
 After a short reply of Morgonaut (screen incoming), and my next question, it got deleted. It's hard to get ready for the circus everyday uh?
 
-![](original_comment.png]
+![](original_comment.png)
 
-![](new_comment.png]
+![](new_comment.png)
 
 # STOP GIVING FAME TO PEOPLE WHO DON'T DESERVE IT
